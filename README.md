@@ -7,3 +7,4 @@ https://drive.google.com/drive/folders/1TB7sOoCf-M-Ajl5TW9yPV3hT73LyjPFq?usp=sha
 https://drive.google.com/drive/folders/1ImRlRSx2W-35un1NW9N_UeL4ZC_GOCG8?usp=sharing - lab 7
 https://drive.google.com/drive/folders/1hZzXVjZMVzoNLRUfLxBrXSGhhqDK-Cwv?usp=sharing - lab 8
 https://docs.google.com/document/d/1hpz29GkZZ9dDyUgztiZvzWgrsSnFCaEpUjRqTKAsp04/edit?usp=sharing - lab 9
+https://drive.google.com/drive/folders/1oZSPAb3GHNNIjRy_NOLKxZxzQ9XoJWE5?usp=sharing - lab 10
